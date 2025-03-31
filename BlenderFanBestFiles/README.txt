@@ -1,0 +1,1 @@
+These files are backed up to: https://www.forever.com/app/users/blenderfan. These are just the public files backed up to this account. The "All Christian" album was not included in this backup as it is simply a combination of Christian Aerial Images, Christian Images, Bible Pdfs, and Bible Apps.
